@@ -6,4 +6,3 @@ Dadurch soll der Ort für die betroffene Person zurückerobert werden und Sichtb
 Erfahre mehr auf @catcallsofhannover oder ChALK BACK Deutschland e.V..
 
 Autorin der Karte: Helena Heuer
-Jahr: 2026
